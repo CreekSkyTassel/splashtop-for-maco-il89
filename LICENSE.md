@@ -1,4 +1,4 @@
-
+Enhance Splashtop for macOS with professional Splashtop for macOS Helper | remote-control + chat-support, the #1 helper. Includes remote-control and chat-support for a smoother
 
 
 
